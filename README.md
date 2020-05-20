@@ -1,1 +1,1 @@
-# komponensek
+sej haj# komponensek
